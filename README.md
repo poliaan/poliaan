@@ -1,6 +1,6 @@
 ## Oiee! Welcome to my world ✨
 
-😄 Pronouns: ela/dela
+ela/dela
 
 <div> 
     <a href="https://github.com/poliaan"</a>
